@@ -9,7 +9,7 @@
 
 Transform your Palworld gaming experience with the most advanced 2026 edition hack. Unlock unlimited potential and dominate the game like never before.
 
-### 🚀 Key Features
+### 🚀 Key Features:
 
 - **Unlimited Resources** - Never worry about materials again
 - **God Mode** - Become invincible in any situation
